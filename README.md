@@ -1,5 +1,5 @@
 NFT数字艺术藏品
-需要源码可以联系本人TG：yv0c1an  EMAIL:yubug4@gmail.com
+需要源码可以联系EMAIL:yubug4@gmail.com
 
 首发+寄售+转增+铸造+空投+盲盒+合成+发售日历+专辑+邀请注册
 
